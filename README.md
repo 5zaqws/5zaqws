@@ -1,1 +1,1 @@
-Wa! Sans! You know it!
+Wa! Sans! You know!
